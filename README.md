@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...No idea
 - 📫 How to reach me ...that's the need?
 - 😄 Pronouns: 🌟
-- ⚡ Fun fact:
+- ⚡ Fun fact:An ostrich's eye👁️ is bigger than it's brain🧠
 
 <!---
 Uddarraj/Uddarraj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
