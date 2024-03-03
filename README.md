@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Biriyani 🤤
 - 🌱 I’m currently learning ...Degree🧑‍🎓
 - 💞️ I’m looking to collaborate on ...No idea
-- 📫 How to reach me ...that's the need?
+- 📫 How to reach me ...What's the need?
 - 😄 Pronouns: 🌟
 - ⚡ Fun fact:An ostrich's eye👁️ is bigger than it's brain🧠
 
